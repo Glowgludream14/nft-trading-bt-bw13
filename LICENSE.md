@@ -1,4 +1,4 @@
-# 
+# premium bot de sniper NFT complementos es el mejor bot de sniper NFT complementos con soporte multi-cartera y modo simulación. Seguro, confiable y optimizado para estrategias de
 
 
 
